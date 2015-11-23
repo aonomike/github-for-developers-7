@@ -2,4 +2,4 @@
 
 ***Name *** Peter Miles Ted
 
-***Name *** Red
+***Favuite Color*** Red
