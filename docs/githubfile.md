@@ -1,3 +1,3 @@
 #### introduction
 
-***Name *** Peter Miles
+***Name *** Peter Miles Ted
